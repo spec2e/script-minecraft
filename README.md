@@ -1,3 +1,3 @@
 # script-minecraft
 
-This is the project where me and my son, Thorbjørn, is hacking minecraft :-)
+Thorbjørn is awesome and he is with his dad, and it is only thorbjørn who knows how to hack minecraft because Thorbjørn, is hacking minecraft :-)
